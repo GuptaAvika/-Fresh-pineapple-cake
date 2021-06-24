@@ -1,0 +1,1 @@
+Combine Flour , Sugar , Baking Soda , Milk , Some chopped pineapples , eggs , butter 
